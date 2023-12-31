@@ -1,4 +1,4 @@
-<!DOCTYPE html>
+
 <html lang="en">
 
 <head>
@@ -77,7 +77,4 @@
 acha g ab adding more th this kuke yeh mane msg mane likha tha pehle like before the laraii of ours and alsoo beforee the larai of mama baba and uskeee baad bhi very much things happened and hamare leye bhi bht kuch hwa and ofc mere leye bhi😂 tou g abhi rnn i am talkkingg to you hi on call sath hi main yeh msg likh rha😂 tum din suna rahi😂acha g bas thora sa hi aur add krna tha keh bas thankyouu for standing by my side as always jitna bhi you ne keya despite our larai tumne sath deya sara aur mane bhi bht kuch kaha tumhe aur bas larai tou ek jagah thii and bas thankyouuu for everything tumne sath deya sari jagah and bas baki tou yeh haina kehh i thought yeh msgg ne jayega tumhe kuke hamari gandi larai ho chuki thii and uske baad main sooch rha tha awein itni mehnat ki mane fir kaha chalo kisi aur ko chala jayega bas aizu ki jagah kisi aur ka nam ajayega😂😂 nahi ase ne soocha tha mane nam change krne wala lakin kerh baki soocha tha keh nahi jayega yeh and i was sad ofcc bas yehi ha g tumne itna khyal keya khud bhi you are very busy and very tired and thankyouu g for this as always😂
 
 iiiiiiilllllooooovvvvveeeeeeeeeeeyyyyyyoooouuuuuussssssoooommmmmmuuuuuuccccccchhhhhhhhhhhhhh ♥♥♥♥♥♥♥♥♥😂mmmmmmmmmmmmuuuuuuuuaaaaaaaaaaaaaaahhhhhhhhhhhhhhh 😂♥♥♥♥♥♥♥♥ and a Happy New Year
-    </div>
-</body>
 
-</html>
